@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming, Hacking, Writing & Animation.
 - 🌱 I’m currently Completing my high school.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me programmermind04748@gmail.com   Discord ID:-  krishusingh04748
+- 📫 How to reach me at Instagram Id: linfeng_luozeng    |     Discord ID:-  krishusingh04748
 - 😄 Pronouns: He
 - ⚡ My hobbies are  Gaming, Learning about programing or anything computer related, Anime, Manga&Manhwa, writing stories, creating manga's.
 - 
