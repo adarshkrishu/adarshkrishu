@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @adarshkrishu
+- 👋 Hi, I’m Krishu Singh.
 - 👀 I’m interested in Programming, Hacking, & Animation.
 - 🌱 I’m currently Completing my high school.
 - 💞️ I’m looking to collaborate on ...
